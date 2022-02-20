@@ -1,4 +1,4 @@
-# 金田一37岁事件薄
+# 37-year-old Kanedaichi Incident Book
 ![]()
 
 ## Introduction
